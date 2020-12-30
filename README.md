@@ -1,0 +1,1 @@
+# Learning_path_AFFILIATION_MANG_MOCK
